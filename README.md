@@ -7,5 +7,7 @@
 - 👯 Contate-me no emael:
 - 🤔 Sou Camera Men..
 - Estou Conhecendo Aprogramção.
+- 🥁 Baterista a 11 anos.
+- 
 
 
