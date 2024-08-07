@@ -15,6 +15,6 @@
       
   </div>
 
-<img align="right" alt="GIF" src="https://s4.aconvert.com/convert/p3r68-cdx67/ajhkm-xcq42.png" width="300px"/>
+<img align="right" alt="GIF" src="https://s4.aconvert.com/convert/p3r68-cdx67/ajhkm-xcq42.png" width="800px"/>
 
 #
